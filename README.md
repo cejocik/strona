@@ -1,1 +1,1 @@
-# strona
+#GDZIE OPÓR 
